@@ -1,17 +1,17 @@
 <div align="center">
 
-<img align="left" src="https://github.com/BIG-SHOT-OF-1997/BIG-SHOT-OF-1997/blob/0a0bebd2ac49aa0275ea1e6e1f5d4a66ac438461/Untitled1619_20260802120432.png" width="280">
+<img align="left" src="https://github.com/BIG-SHOT-OF-1997/BIG-SHOT-OF-1997/blob/32428a59d0c556ba34716b155b9e272f48c76319/Untitled1619_20261019162537.png" width="280">
 
 <div align="left">
 
-  ${\textsf{\color{#FA7639}flowery}}$   ${\textsf{\color{#FA9339}or}}$   ${\textsf{\color{#FABD39}matthew}}$⠀    ${\textsf{\color{#FA9339}he}}$ ${\textsf{\color{#FA7639}/}}$ ${\textsf{\color{#FA6C39}him}}$⠀      
-${\textsf{\color{#E64229}Flowers blooms}}$    
-                           ${\textsf{\color{#FA9339}In your}}$ ${\textsf{\color{#FABD39}heart . . !}}$
+  ${\textsf{\color{#ffffff}leon}}$   ${\textsf{\color{#d7eff7}or}}$   ${\textsf{\color{#b2d4eb}matt}}$⠀    ${\textsf{\color{#ff6bae}he}}$ ${\textsf{\color{#ffffff}/}}$ ${\textsf{\color{#ffdd00}him}}$⠀      
+${\textsf{\color{#ffffff}PICK UP}}$    
+                           ${\textsf{\color{#ff6bae}THE}}$ ${\textsf{\color{#ffdd00}PHONE . !}}$
 
-  ![](https://komarev.com/ghpvc/?username=BIG-SHOT-OF-1997a&color=F7B24D&&label=seedlings)
+  ![](https://komarev.com/ghpvc/?username=BIG-SHOT-OF-1997a&color=ff6bae&&label=TELEMARKETERS)
 
 
- [straw](https://jaronas.straw.page/) ${\textsf{\color{#E64229}.}}$
+ [straw](https://dankovskys.straw.page) ${\textsf{\color{#ffdd00}.}}$
 
 
 </div>
